@@ -1,1 +1,1 @@
-El primer fichero del primer reposiatorio de Angel Vilaboa
+El primer fichero del primer repositorio de Angel Vilaboa
